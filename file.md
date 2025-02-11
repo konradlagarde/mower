@@ -1,6 +1,3 @@
-# **L**
-
-![](_page_0_Figure_2.jpeg)
 
 **Push Mower** m **Moclel Series 020**
 
